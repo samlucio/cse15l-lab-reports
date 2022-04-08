@@ -1,3 +1,12 @@
-## Samantha <3
+#Samantha <3
 
-![Image](https://hips.hearstapps.com/clv.h-cdn.co/assets/17/29/1500566326-gettyimages-512366437-1.jpg)
+![Image](https://styles.redditmedia.com/t5_346cl/styles/communityIcon_09sormoxbtu31.png)
+
+##3 reasons why i love dogs
+1. cute
+2. cuddly
+3. energetic
+
+***I LOVE DOGS!!
+
+
