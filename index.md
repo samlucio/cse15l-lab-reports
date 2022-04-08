@@ -7,6 +7,6 @@
 2. cuddly
 3. energetic
 
-**I LOVE DOGS!!
+***I LOVE DOGS!!***
 
 
