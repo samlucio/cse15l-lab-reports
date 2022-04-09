@@ -7,8 +7,7 @@
 2. cuddly
 3. energetic
 
-***mely smells like poop
-***
+***mely smells like poop ew***
 
 hii,, this is a test : )
 
