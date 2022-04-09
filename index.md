@@ -12,3 +12,7 @@
 hii,, this is a test : )
 
 *testing*
+
+[Lab Report 1](lab-report-1-week-2.html)
+
+[Lab Report 1](https://samlucio.github.io/cse15l-lab-reports/lab-report-1-week-2.html)
