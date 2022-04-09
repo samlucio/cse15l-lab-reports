@@ -1,13 +1,14 @@
 # Samantha <3
 
-![Image](https://styles.redditmedia.com/t5_346cl/styles/communityIcon_09sormoxbtu31.png)
+![Image](https://styles.redditmedia.com/t5_2tbwx/styles/communityIcon_m4nsjaqlt4171.png)
 
 ## 3 reasons why i love dogs
 1. cute
 2. cuddly
 3. energetic
 
-***I LOVE DOGS!!***
+***mely smells like poop
+***
 
 hii,, this is a test : )
 
