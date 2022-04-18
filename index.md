@@ -1,13 +1,8 @@
-# Samantha <3
-
-![Image](https://styles.redditmedia.com/t5_2tbwx/styles/communityIcon_m4nsjaqlt4171.png)
-
+# CSE 15L Lab Reports
 ## 3 reasons why i love dogs
 1. cute
 2. cuddly
-3. energetic
-
-***mely smells like poop ew***
+3. energeti
 
 hii,, this is a test : )
 
@@ -15,6 +10,6 @@ hii,, this is a test : )
 
 [Lab Report 1](lab-report-1-week-2.html)
 
-[Lab Report 1](https://samlucio.github.io/cse15l-lab-reports/lab-report-1-week-2.html)
+[Lab Report 1](https://samlucio.github.io/cse15l-lab-reports/labReport1.html)
 
 ***hi***
